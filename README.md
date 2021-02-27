@@ -1,1 +1,1 @@
-# idle-miner
+gg wp
